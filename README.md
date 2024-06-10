@@ -1,3 +1,4 @@
+![Ментальная карта](https://github.com/fkfskz/pm12-project/blob/main/uwu.png)
 # День 15 / 18 10.06.2024
 
 ### Пара №1. 08:20 - 09:05, 09:10 - 09:55
